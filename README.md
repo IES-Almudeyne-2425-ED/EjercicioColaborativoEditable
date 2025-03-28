@@ -13,7 +13,7 @@ A celebrar el Fin de ciclo.
 
 Donde esperaron disfrutar de unas deliciosas vacaciones con el gran profesor Enrique. Pero Enrique tenía un horrible secreto, que estaba apunto de desvelarse; el monstruo en su entrepierna.. Cuando los alumnos llegaron a la famosa playa de BashBeach...
 
-### Autor: 
+### Autor: Adrián Puerto Fernández
 Al día siguiente, Adam estaba saltando la valla de Melilla. Hacía buen tiempo, las probabilidades estaban a su favor, sin embargo escuchó un "si o no" detrás de el. Adam quedó paralizado del miedo.
 
 ### Autor: 
