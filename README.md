@@ -19,7 +19,8 @@ Al día siguiente, Adam estaba saltando la valla de Melilla. Hacía buen tiempo,
 ### Autor: Raúl Liébana Sánchez
 Donde sea pero en bus porque, <img src="https://preview.redd.it/bombardeen-renfe-cercanias-v0-ngz2u0k05lxc1.jpg?width=1080&format=pjpg&auto=webp&s=2729aad0d5577f2cfa1617f61aa2171804f6bab4" alt="Imagen de Renfe Cercanías" />
 
-### Autor: 
+### Autor: Nieves Triguero Begines
+Punta Cana. Tras unos dias de diversión máxima, todos volvieron felices a jugar a los Pokémon, excepto Nieves, que decicidió quedarse a vivir allí, mientras tomaba el sol sin preocupaciones.
 
 
 ### Autor:
