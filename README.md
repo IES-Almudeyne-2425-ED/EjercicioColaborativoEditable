@@ -10,7 +10,7 @@ Melilla.
 A celebrar el Fin de ciclo.
 
 ### Autor: Ricardo Montes Carrasco
-g
+
 Donde esperaron disfrutar de unas deliciosas vacaciones con el gran profesor Enrique. Pero Enrique tenía un horrible secreto, que estaba apunto de desvelarse; el monstruo en su entrepierna.. Cuando los alumnos llegaron a la famosa playa de BashBeach...
 
 ### Autor: 
