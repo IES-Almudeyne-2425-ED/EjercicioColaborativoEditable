@@ -16,8 +16,8 @@ Donde esperaron disfrutar de unas deliciosas vacaciones con el gran profesor Enr
 ### Autor: Adrián Puerto Fernández
 Al día siguiente, Adam estaba saltando la valla de Melilla. Hacía buen tiempo, las probabilidades estaban a su favor, sin embargo escuchó un "si o no" detrás de el. Adam quedó paralizado del miedo.
 
-### Autor: 
-
+### Autor: Raúl Liébana Sánchez
+Donde sea pero en bus porque, <img src="https://preview.redd.it/bombardeen-renfe-cercanias-v0-ngz2u0k05lxc1.jpg?width=1080&format=pjpg&auto=webp&s=2729aad0d5577f2cfa1617f61aa2171804f6bab4" alt="Imagen de Renfe Cercanías" />
 
 ### Autor: 
 
