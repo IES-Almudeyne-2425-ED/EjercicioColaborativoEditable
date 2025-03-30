@@ -26,8 +26,8 @@ Punta Cana. Tras unos dias de diversión máxima, todos volvieron felices a juga
 ### Autor: Antonio Vázquez Cabello
 Mientras tanto en una playa remota de Melilla, Adam no pudo jugar feliz a los Pokemon debido a que su nintendo se encontraba en posesión de Enrique quien lo golpeaba con un látigo debido a su color céntimo. Más tarde Enrique usó su poder del PENTIUM III para averiguar...
 
-### Autor: 
-
+### Autor: Sergio Apresa Torres
+Cómo desacerse de Xavier Falcone sin dejar rastro, SI o SI debía suspenderle la asignatura para arruinarle la vida con la ayuda de "El amigo, PcComponentes y SoftZone". Para ello utilizaría comandos de Linux usando tuberias y algunos scripts. Pero de repente...  
 
 ### Autor: 
 
