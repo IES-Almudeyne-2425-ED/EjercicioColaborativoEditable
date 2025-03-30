@@ -23,8 +23,8 @@ Donde sea pero en bus porque, <img src="https://preview.redd.it/bombardeen-renfe
 Punta Cana. Tras unos dias de diversión máxima, todos volvieron felices a jugar a los Pokémon, excepto Nieves, que decicidió quedarse a vivir allí, mientras tomaba el sol sin preocupaciones.
 
 
-### Autor:
-
+### Autor: Antonio Vázquez Cabello
+Mientras tanto en una playa remota de Melilla, Adam no pudo jugar feliz a los Pokemon debido a que su nintendo se encontraba en posesión de Enrique quien lo golpeaba con un látigo debido a su color céntimo. Más tarde Enrique usó su poder del PENTIUM III para averiguar...
 
 ### Autor: 
 
