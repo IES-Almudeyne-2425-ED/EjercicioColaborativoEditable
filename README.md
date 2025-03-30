@@ -29,8 +29,8 @@ Mientras tanto en una playa remota de Melilla, Adam no pudo jugar feliz a los Po
 ### Autor: Sergio Apresa Torres
 Cómo desacerse de Xavier Falcone sin dejar rastro, SI o SI debía suspenderle la asignatura para arruinarle la vida con la ayuda de "El amigo, PcComponentes y SoftZone". Para ello utilizaría comandos de Linux usando tuberias y algunos scripts. Pero de repente...  
 
-### Autor: 
-
+### Autor: Antonio Laínez Rodríguez
+Donde sea con tal de aprobar sistemas, ENRIQUE DIMISIÓN!! <video autoplay muted loop><source src="https://www.tiktok.com/@i_love_barcelona_lh/video/7309187779399781664?is_from_webapp=1&sender_device=pc" type="video/mp4"></video>
 
 ### Autor: 
 
