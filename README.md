@@ -35,5 +35,8 @@ Donde sea con tal de aprobar sistemas, ENRIQUE DIMISIÓN!! <img src="https://pre
 ### Autor: Pedro Escudero Fernández 
 Enrique sacó unas alas y fue a atacar a Xavier Falcone <img src="https://static.wikia.nocookie.net/marvelall/images/3/3c/VBuietre.jpg/revision/latest/scale-to-width-down/197?cb=20131218231342&path-prefix=es" alt="Enrique" />
 
+### Autor: Esteban García Muñoz
+Esteban se fue a trabajar al mercadona ya que suspendió sostenibilidad y digitalización <img src="https://static.wikia.nocookie.net/mamarre-estudios-espanol/images/1/1f/FB_IMG_1600387484979.jpg/revision/latest?cb=20200918001711&path-prefix=es" alt="Momazos Diego">
+
 ### Autor: Antonio Ramos Bellido
 Finalmente se encontraron y empezon una guerra interminable<img src= "https://www.nacionflix.com/img/2022/11/28/imagen-traje-buitre-spiderman-4.jpg?__scale=w:1200,h:675,t:2" at="Imagen de la pelea mas épica">
