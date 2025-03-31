@@ -27,12 +27,12 @@ Punta Cana. Tras unos dias de diversión máxima, todos volvieron felices a juga
 Mientras tanto en una playa remota de Melilla, Adam no pudo jugar feliz a los Pokemon debido a que su nintendo se encontraba en posesión de Enrique quien lo golpeaba con un látigo debido a su color céntimo. Más tarde Enrique usó su poder del PENTIUM III para averiguar...
 
 ### Autor: Sergio Apresa Torres
-Cómo desacerse de Xavier Falcone sin dejar rastro, SI o SI debía suspenderle la asignatura para arruinarle la vida con la ayuda de "El amigo, PcComponentes y SoftZone". Para ello utilizaría comandos de Linux usando tuberias y algunos scripts. Pero de repente...  
+Cómo desacerse de Xavier Falcone sin dejar rastro, SI o SI debía suspenderle la asignatura para arruinarle la vida con la ayuda de "El amigo, PcComponentes y SoftZone". Para ello utilizaría comandos de Linux usando tuberias y algunos scripts. Y de repente...  
 
 ### Autor: Antonio Laínez Rodríguez
 Donde sea con tal de aprobar sistemas, ENRIQUE DIMISIÓN!! <img src="https://preview.redd.it/bombardeen-renfe-cercanias-v0-aos45be05lxc1.jpg?width=1080&crop=smart&auto=webp&s=e0068860bd36326a8fc7e4717ed92b3cf90b259d" alt="Imagen de Renfe Cercanías" />
 
-### Autor: 
-
+### Autor: Pedro Escudero Fernández 
+Enrique sacó unas alas y fue a atacar a Xavier Falcone <img src="https://static.wikia.nocookie.net/marvelall/images/3/3c/VBuietre.jpg/revision/latest/scale-to-width-down/197?cb=20131218231342&path-prefix=es" alt="Enrique" />
 
 ### Autor: 
